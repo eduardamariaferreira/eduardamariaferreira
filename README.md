@@ -1,0 +1,5 @@
+- 👋 Hi, I’m maria eduarda
+- 👀 eu me interesso em livros de desenvolvimento pessoal
+- 🌱 estou aprendendo sobre coisas que vao me ajudar na vida pessoal e financeira pelos livros que eu leio
+- 💞 eu amo academia
+- 📫 moro em ponta grossa-pr
